@@ -1,4 +1,5 @@
-![1000016239](https://github.com/user-attachments/assets/9a2a6329-9eae-4db7-8177-71f5e8c1acb5)
+![1000081733](https://github.com/user-attachments/assets/ce6ba7fa-e5d6-4cef-acf6-0035bfcce606)
+
 „᥉hᥲᦔ𐔖ᥕ᥉ ᦔιᥱ tᥕιᥴᥱ."
 
    Two Time/Spoon!
@@ -32,4 +33,10 @@ i might be weird with some people I'm really close to. please tell me if you're 
 OOMFS:;
 @c00lGUI7n7 , @Xioisme , @blueberryshadow , @kuro1xw , @LeechingMer
   FOLLOW THEM, THEY'RE C00L GUYS:3
+
+
+  
+  „ι𐔥 𐔤𐔖ᥙ ᥱ᥎ᥱr tr𐔤 t𐔖 ᥣᥱᥲ᥎ᥱ ⲙᥱ, ι'ᥣᥣ 𐔥ιᥒᦔ 𐔤𐔖ᥙ, ᥲzᥙrᥱ.“ — pfp matching with @Xioisme ! 
+  
+![1000081731](https://github.com/user-attachments/assets/65a28782-a6d5-40f8-8edc-3cec477c7d37)
 
