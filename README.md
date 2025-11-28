@@ -15,17 +15,55 @@ I'm kinda introverted but feel free to int! c+h is much appreciated. I like maki
 TWO TIME, AZURE, BROKEN SPAWN, JIM AND YURI FICTKIN!
 
 Fandoms I'm in rn . . .
+
+
+
 -FORSAKEN
+
+
+
 -DIE OF DEATH
+
+
+
+
 -HAPPY WORLD WITH HAPPY PEOPLE
+
+
+
+
 -DOKI DOKI, LITERATURE CLUB!
+
+
+
+
 -JIM'S COMPUTER
+
+
+
+
+
+
 -LET HIM GO
+
+
+
+
 -MAY MADNESS 2012
+
+
+
+
+
 -ALIEN STAGE
+
+
 
 Dni list. . .:;
 people under 10 years old unless close, people over 20 years old unless close,doubles,dark/proshippers,sexists. 
+
+
+
 
    i really love matching! so don't be afraid of asking to make matching skins.
 i might be weird with some people I'm really close to. please tell me if you're uncomfortable with my behaviour,ty!
