@@ -2,10 +2,10 @@
 
 „᥉hᥲᦔ𐔖ᥕ᥉ ᦔιᥱ tᥕιᥴᥱ."
 
-   Two Time/Spoon!
+ Two Time/Spoon!
 
 Gender:; Non-binary.
-  prononous:;They/Them.
+             prononous:;They/Them.
 
 SINGLE
 
@@ -69,7 +69,7 @@ people under 10 years old unless close, people over 20 years old unless close,do
 i might be weird with some people I'm really close to. please tell me if you're uncomfortable with my behaviour,ty!
 
 OOMFS:;
-@c00lGUI7n7 , @Xioisme , @blueberryshadow , @kuro1xw , @LeechingMer
+@c00lGUI7n7 , @Xioisme , @blueberryshadow , @kuro1xw , @LeechingMer , @corruptedtalez
   FOLLOW THEM, THEY'RE C00L GUYS:3
 
 
