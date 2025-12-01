@@ -2,7 +2,7 @@
 
 „᥉hᥲᦔ𐔖ᥕ᥉ ᦔιᥱ tᥕιᥴᥱ."
 
- Two Time/Spoon!
+ Two Time/Ichiro!
 
 Gender:; Non-binary.
              prononous:;They/Them.
