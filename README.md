@@ -7,8 +7,6 @@
 Gender:; Non-binary.
              prononous:;They/Them.
 
-SINGLE
-
   NOTE:;
 I'm kinda introverted but feel free to int! c+h is much appreciated. I like making new friends, although i might be giving dry responses at first unless i grew really close to you. w2i is preferred.
 
