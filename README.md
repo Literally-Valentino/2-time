@@ -56,6 +56,8 @@ Fandoms I'm in rn . . .
 -ALIEN STAGE
 
 
+-HAZBIN HOTEL
+
 
 Dni list. . .:;
 people under 10 years old unless close, people over 20 years old unless close,doubles,dark/proshippers,sexists. 
