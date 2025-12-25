@@ -79,5 +79,3 @@ OOMFS:;
 ![1000081731](https://github.com/user-attachments/assets/65a28782-a6d5-40f8-8edc-3cec477c7d37)
 
 AZEL I AM NOT GAY STOP THIS😿😿😿
-
-17.12.2011—19.12.2025
