@@ -10,7 +10,7 @@ Gender:; Non-binary.
   NOTE:;
 I'm kinda introverted but feel free to int! c+h is much appreciated. I like making new friends, although i might be giving dry responses at first unless i grew really close to you. w2i is preferred.
 
-TWO TIME, AZURE, BROKEN SPAWN, JIM AND YURI FICTKIN!
+TWO TIME AND VALENTINO FICTKIN!
 
 Fandoms I'm in rn . . .
 
