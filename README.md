@@ -1,8 +1,9 @@
-![1000081733](https://github.com/user-attachments/assets/ce6ba7fa-e5d6-4cef-acf6-0035bfcce606)
+![1000082487](https://github.com/user-attachments/assets/2a19ce8b-8cc6-4ecf-9142-7573c303a5e6)
 
-„᥉hᥲᦔ𐔖ᥕ᥉ ᦔιᥱ tᥕιᥴᥱ."
 
- Two Time/Ichiro!
+„Oh,you know me too well.“
+
+ Ichiro/Val!
 
 Gender:; Non-binary.
              prononous:;They/Them.
@@ -52,8 +53,11 @@ Fandoms I'm in rn . . .
 
 
 
-
 -ALIEN STAGE
+
+
+
+
 
 
 -HAZBIN HOTEL
@@ -69,13 +73,10 @@ people under 10 years old unless close, people over 20 years old unless close,do
 i might be weird with some people I'm really close to. please tell me if you're uncomfortable with my behaviour,ty!
 
 OOMFS:;
-@c00lGUI7n7 @StellarHaz3 , @blueberryshadow , @lackadaisiycal , @LeechingMer , @corruptedtalez
+@c00lGUI7n7 @StellarHaz3 , @blueberryshadow , @lackadaisiycal , @LeechingMer , @corruptedtalez , @after-lifer
   FOLLOW THEM, THEY'RE C00L GUYS:3
 
+![1000082488](https://github.com/user-attachments/assets/b3809246-a817-42f6-86be-e431820bdff6)
 
   
-  „ι𐔥 𐔤𐔖ᥙ ᥱ᥎ᥱr tr𐔤 t𐔖 ᥣᥱᥲ᥎ᥱ ⲙᥱ, ι'ᥣᥣ 𐔥ιᥒᦔ 𐔤𐔖ᥙ, ᥲzᥙrᥱ.“ — pfp matching with @Xioisme ! 
-  
-![1000081731](https://github.com/user-attachments/assets/65a28782-a6d5-40f8-8edc-3cec477c7d37)
-
 AZEL I AM NOT GAY STOP THIS😿😿😿
